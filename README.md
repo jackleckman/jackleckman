@@ -1,7 +1,7 @@
 - 👋🏻 Hi, I’m Jack Leckman
 - 👀 I’m interested in speaking my opinions on topics, and speaking for those whos voices do not count.
 - 📝 I’m currently learning N/A
-- 💞️ I’m looking to collaborate with @yltci
+- 💞️ I’m looking to collaborate with "[YL2CI] The Legend Himself!", and "Sugg Ugs Ggus".
 - 📫 How to reach me: Discord, @jackleckman
 - 
 
